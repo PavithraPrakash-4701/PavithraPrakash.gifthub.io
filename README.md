@@ -1,1 +1,1 @@
-# PavithraPrakash.gifthub.io
+# PavithraPrakash.github.io
